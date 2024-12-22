@@ -1,0 +1,1 @@
+/home/beholder/.wallpapers/zero-two.jpg
